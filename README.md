@@ -19,3 +19,4 @@ Congratulations, you have now character-substituted your document with similar-l
       B > Β  
       A > Α  
         
+Original blog post here: https://someteasandquiet.blogspot.com/2018/05/way-to-beat-turnitin.html
